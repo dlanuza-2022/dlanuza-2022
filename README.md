@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dlanuza-2022
-- 👀 I’m interested in improving with God`s help.
+- 👀 I’m interested in learnign more everyday.
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me dorian.lanuza2022@gmail.com
